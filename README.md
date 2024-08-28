@@ -38,15 +38,11 @@ Full Account PDF Download: [US Air Force Contempt of Constitution Full Statement
 
 ### How to send a message to your Representative or Senator 
 
-Click here: https://www.congress.gov/members/find-your-member 
-
-Enter your home or voting address 
-
-Click search 
-
-Two Senators and a Congressman should come up 
-
-Click “contact” 
+1. Click here: https://www.congress.gov/members/find-your-member 
+2. Enter your home or voting address 
+3. Click search 
+4. Two Senators and a Congressman should come up 
+5. Click “contact” 
 
 Websites differ, in general: 
 - For Senators click “Share your Opinion” 
@@ -54,7 +50,7 @@ Websites differ, in general: 
 
 If you are not a US Citizen you can send a message to the US Ambassador to the country of your citizenship. Email addresses are here: https://travel.state.gov/content/travel/en/consularnotification/ConsularNotificationandAccess.html 
 
-# Denial of Due Process in the Denial of Tenure of Dr. Schultz
+# Conatitutional Violations in the Denial of Tenure of Dr. Schultz
 
 Dr. Schultz was fired from the Air Force Institute of Technology after having been denied tenure. “The Item of biggest concern” was a false accusation that Dr. Schultz had lied on his application. That allegation was origionally made by an external reviewer. Dr. Schultz was not informed of the complaint nor given any chance to respond to the allegations before critical decisions denying him tenure were made. The review committee did an improper review by claiming there was no evidence of bias, by finding the external reviewer qualified despite being in a different academic field and clearly not meeting the written standards, and by refusing to make any attempt to have a review of Dr. Schultz’s career contribution by qualified and unbiased reviewers as require by regulation. The actions of AFIT in denying tenure based on accusations without allowing Dr. Schultz to respond, by conducting an improper review, and by not using the published standards, clearly violated Dr. Schultz’s Constitutional rights to due process. A full explanation and supporting documents are provided in the following files. 
 
