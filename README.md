@@ -60,7 +60,23 @@ Dr. Schultz was fired from the Air Force Institute of Technology after having be
 
 Full Account PDF Download [Denial of Tenure Full Statement](Denial%20of%20Tenure%20Full%20Statement.pdf)
 ## Supporting Documentation
-
+1. [(/Timeline.xlsx)
+2. [(/StandingRules.pdf)
+3. [(/Department Guidelines.pdf)
+5. [(/Report of the Review Committee.pdf)
+6. [(/DepartmentCommitteeDecision.pdf)
+7. [(/DeptChairDecision.pdf)
+8. [(/SchoolCommitteeDecision1.pdf)
+10. [(/LtrfromDr.Bendoly.pdf)
+11. [(/LtrRequestingReviewCommittee.pdf)
+12. [(/EmailfromDr.Polanka.msg)
+13. [(/SchoolCommitteeDecision2.pdf)
+14. [(/DecisionletterfromProvost.pdf)
+14.1 [(/FinalDecisiontoDenyTenure.pdf)
+14.2 [(/EmailonDecisionfromProvost.pdf)
+29. [(/JOMWebpagewithDr.SchultzasEditor.pdf)
+30. [(/StandingRulesProposedRevision July112017Full.pdf)
+31. [(/SchultzAffidavit2pdf)
 
 
 ### Donate to support the effort and cover the costs of Dr. Schultz on PayPal KandSSchultz@gmail.com
