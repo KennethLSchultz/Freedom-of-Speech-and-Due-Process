@@ -33,7 +33,8 @@ Full Account PDF Download: [US Air Force Contempt of Constitution Full Statement
 
 ## What can you do to help?
 
-### Sample Email to Congress
+### Sample Email to Congress 
+[Dear Congressman.pdf](/Dear%20Congressman.pdf)
 
 ### How to send a message to your Representative or Senator 
 
