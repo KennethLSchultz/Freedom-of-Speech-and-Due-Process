@@ -63,7 +63,7 @@ Full Account PDF Download [Denial of Tenure Full Statement](Denial%20of%20Tenure
 1. [Timeline](/1%20Timeline.xlsx)
 2. [Standing Rules](/2%20StandingRules.pdf)
 3. [Department Guidelines](/3%20Department%20Guidelines.pdf)
-5. [REport of the Review Committee](/5%20Report%20of%20the%20Review%20Committee.pdf)
+5. [Report of the Review Committee](/5%20Report%20of%20the%20Review%20Committee.pdf)
 6. [Department Committee Decision](/6%20DepartmentCommitteeDecision.pdf)
 7. [Deparment Chair Decision](/7%20DeptChairDecision.pdf)
 8. [Schools Committee Decision](/8%20SchoolCommitteeDecision1.pdf)
