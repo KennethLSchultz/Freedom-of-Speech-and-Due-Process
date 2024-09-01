@@ -34,7 +34,7 @@ Full Account PDF Download: [US Air Force Violation of the Constitution Full Stat
 ## What can you do to help?
 
 ### Sample Email to Congress 
-[Dear Congressman.pdf](/Dear%20Congressman.pdf)
+[Dear Congressman.pdf](/DearCongressman.pdf)
 
 ### How to send a message to your Representative or Senator 
 
