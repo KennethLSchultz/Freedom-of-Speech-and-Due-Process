@@ -4,9 +4,9 @@ The freedoms that Americans hold dear depends on the willingness of our Armed Fo
 
 Thank you for reading the article Contempt for the Constitution by the US Air Force. This page contains links to the Full Account of the actions of the US Air Force, the Supporting Documentation and links for what action you can take.
 
-Article PDF Download: [Contempt for the Constitution by the U.S. Air Force](/USAF%20Contempt%20for%20the%20Constitution.pdf)
+Article PDF Download: [US Air Force Violation of Free Speech and Due Process](/USAF%20Contempt%20for%20the%20Constitution.pdf)
 
-Full Account PDF Download: [US Air Force Contempt of Constitution Full Statement](/USAFContemptofConstitutionFullStatementofFacts.pdf)
+Full Account PDF Download: [US Air Force Violation of the Constitution Full Statement](/USAFContemptofConstitutionFullStatementofFacts.pdf)
 ## Supporting Documentation
 1. [Decision to suspend](/SupportingDocuments/1DecisiontoSuspend.pdf) 
 2. [Excerpt from Schultz Affidavit](/SupportingDocuments/2ExcerptfromSchultzAffidavit.pdf) 
