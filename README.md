@@ -51,24 +51,6 @@ Full Account PDF Download: [US Air Force Violation of the Constitution Full Stat
 14. [Withdrawal of Grievance](/SupportingDocuments/14WithdrawalofGrievance.pdf)  
 15. [Second Withdrawal of Grievance](/SupportingDocuments/15SecondWithdrawalofGrievance.pdf) 
 
-## What can you do to help?
-
-### Sample Email to Congress 
-[Dear Congressman.pdf](/DearCongressman.pdf)
-
-### How to send a message to your Representative or Senator 
-
-1. Click here: https://www.congress.gov/members/find-your-member 
-2. Enter your home or voting address 
-3. Click search 
-4. Two Senators and a Congressman should come up 
-5. Click “contact” 
-
-Websites differ, in general: 
-- For Senators click “Share your Opinion” 
-- For Congress “send email” 
-
-If you are not a US Citizen you can send a message to the US Ambassador to the country of your citizenship. Email addresses are here: https://travel.state.gov/content/travel/en/consularnotification/ConsularNotificationandAccess.html 
 
 # Conatitutional Violations in the Denial of Tenure of Dr. Schultz
 
