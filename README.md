@@ -5,6 +5,7 @@ The freedoms that Americans hold dear depends on the willingness of our Armed Fo
 Thank you for reading the article Contempt for the Constitution by the US Air Force. This page contains links to the Full Account of the actions of the US Air Force, the Supporting Documentation and links for what action you can take.
 
 Read article here: [US Air Force Violation of Free Speech and Due Process](/USAFViolationofFreeSpeechandDueProcess.pdf)
+Longer, more detailed Full Account PDF Download: [US Air Force Violation of the Constitution Full Statement](/USAFContemptofConstitutionFullStatementofFacts.pdf)
 More details and supporting documentation below.
 
 ## If you wish to support Feedom of Speech in the classroom and want the USAF to defend the Constitution, send the article above to your friends and send a letter to your representatives or the US Embassay. 
@@ -26,7 +27,6 @@ Websites differ, in general: 
 
 If you are not a US Citizen you can send a message to the US Ambassador to the country of your citizenship. Email addresses are here: https://travel.state.gov/content/travel/en/consularnotification/ConsularNotificationandAccess.html 
 
-Full Account PDF Download: [US Air Force Violation of the Constitution Full Statement](/USAFContemptofConstitutionFullStatementofFacts.pdf)
 ## Supporting Documentation
 1. [Decision to suspend](/SupportingDocuments/1DecisiontoSuspend.pdf) 
 2. [Excerpt from Schultz Affidavit](/SupportingDocuments/2ExcerptfromSchultzAffidavit.pdf) 
