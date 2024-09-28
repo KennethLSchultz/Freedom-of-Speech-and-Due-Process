@@ -11,7 +11,7 @@ More details and supporting documentation below.
 ## If you wish to support Feedom of Speech in the classroom and want the USAF to defend the Constitution, send the article above to your friends and send a letter to your representatives or the US Embassay. 
 
 ### Sample Email to Congress 
-[Dear Congressman.pdf](/DearCongressman.pdf)
+[Dear Congressman.pdf](/Dear_Congressman.pdf)
 
 ### How to send a message to your Representative or Senator 
 
