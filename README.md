@@ -52,7 +52,7 @@ If you are not a US Citizen you can send a message to the US Ambassador to the c
 15. [Second Withdrawal of Grievance](/SupportingDocuments/15SecondWithdrawalofGrievance.pdf) 
 
 
-# Conatitutional Violations in the Denial of Tenure of Dr. Schultz
+# Constitutional Violations in the Denial of Tenure of Dr. Schultz
 
 Dr. Schultz was fired from the Air Force Institute of Technology after having been denied tenure. “The Item of biggest concern” was a false accusation that Dr. Schultz had lied on his application. That allegation was origionally made by an external reviewer. Dr. Schultz was not informed of the complaint nor given any chance to respond to the allegations before critical decisions denying him tenure were made. The review committee did an improper review by claiming there was no evidence of bias, by finding the external reviewer qualified despite being in a different academic field and clearly not meeting the written standards, and by refusing to make any attempt to have a review of Dr. Schultz’s career contribution by qualified and unbiased reviewers as require by regulation. The actions of AFIT in denying tenure based on accusations without allowing Dr. Schultz to respond, by conducting an improper review, and by not using the published standards, clearly violated Dr. Schultz’s Constitutional rights to due process. A full explanation and supporting documents are provided in the following files. 
 
