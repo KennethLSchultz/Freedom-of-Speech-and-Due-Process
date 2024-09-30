@@ -4,6 +4,8 @@ The freedoms that Americans hold dear depends on the willingness of our Armed Fo
 
 Thank you for reading the article Contempt for the Constitution by the US Air Force. This page contains links to the Full Account of the actions of the US Air Force, the Supporting Documentation and links for what action you can take.
 
+The purpose of this website is to get the USAF to honor the Constitution. It is not to rehear my case. My case is minor and its over, there are no remaining legal options. It is provided as an example of what the USAF is willing to do. The problem is the wllingness of the USAF to trample the Constitutional rights of citizens. If they are willing to ignore the Constitution in a small thing like this, we cannot depend on them to protect the Constitution when it comes to the big things. 
+
 Read article here: [US Air Force Violation of Free Speech and Due Process](/USAFViolationofFreeSpeechandDueProcess.pdf)
 Longer, more detailed Full Account PDF Download: [US Air Force Violation of the Constitution Full Statement](/USAFContemptofConstitutionFullStatementofFacts.pdf)
 More details and supporting documentation below.
