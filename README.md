@@ -1,4 +1,4 @@
-# U.S. Air Force Contempt for the Constitution
+# Teach the Constitution 
 
 The freedoms that Americans hold dear depends on the willingness of our Armed Forces to defend the Constitution. We cannot allow that honorable service, and our rights as citizens, to be corrupted by the leadership of the US Air Force who refuse to honor their oath to defend the Constitution. 
 
